@@ -7,5 +7,5 @@
 💬 Ask me about product management, content, community and team building\
 📫 How to reach me: DM me on https://www.linkedin.com/in/dr-elson-joy/ \
 😄 Pronouns: He/Him\
-⚡ Fun fact: I'm a qualified dentist but ever since school I knew that I would be coding and running businesses. I took the other field because I thought it would be more challenging and I could always come back to computers anyway because that's what I was interested in.\
+⚡ Fun fact: I'm a qualified dentist but ever since school I knew that I would be coding and running businesses. I took the other field because I thought it would be more challenging and I could always come back to computers anyway because that's what I was interested in.
 
